@@ -8,16 +8,14 @@
 
 <div align="center">
 
-![Profile views](https://komarev.com/ghpvc/?username=vielani&label=viewers%20wowow&color=050505&style=flat)
+![Profile views](https://komarev.com/ghpvc/?username=vielani&label=viewers%20🦊&color=050505&style=flat)
 
-`vie ♡ you !!` 
-
-everything you need to know abt me is in my carrd
+vie ♡ you !! ; everything you need to know abt me is in my carrd
 
 
 <div align="center">
   
-[![visit my carrd meoww](https://img.shields.io/badge/★%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
+[![visit my carrd meoww](https://img.shields.io/badge/carrd%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
 
 
 
