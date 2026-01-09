@@ -26,6 +26,8 @@ vie ♡ you !! ; everything you need to know abt me is in my carrd
 <a href="https://soundcloud.com/yeniie-oik/cheeseball-by-martin-mars-cortis-live-weverse-25112025?si=abda8dbde6714d3db0752b59d502039f&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing">
 <img width="416" height="52"alt="click here to listen to cheeseballs raah"src="https://github.com/user-attachments/assets/1d4aba56-248e-4d5f-8c9b-9bb5a0f3d888"/> </a></p>
 
+<sup><sub>Follow me for a cookie 🍪</sub></sup>
+
 ----
 
 ## currently listening to..
