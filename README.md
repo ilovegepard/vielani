@@ -11,6 +11,9 @@
 
 ![Profile views](https://komarev.com/ghpvc/?username=vielani&label=views%20&color=050505&style=flat)
 
+
+<sup><sub>get me to 6767 views chat! 👆, dm the ss</sub></sup>
+
 vie ♡ you !! ; everything you need to know abt me is in my carrd
 
 
