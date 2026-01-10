@@ -10,7 +10,7 @@
 
 <div align="center">
 
-![Profile views](https://komarev.com/ghpvc/?username=vielani&label=cuties%20&color=F5BFC9&style=flat)
+![Profile views](https://komarev.com/ghpvc/?username=vielani&label=cuties%20&color=F5BFC9&style=plastic)
 
 
 (get me to 6767 views ! 👆, dm the ss)
